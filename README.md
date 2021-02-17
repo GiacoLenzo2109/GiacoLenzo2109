@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GiacoLenzo2109
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning about everything
+- 📫 How to reach me: GiacoLenzo2109@gmail.com
